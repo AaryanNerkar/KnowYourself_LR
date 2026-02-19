@@ -1,1 +1,0 @@
-# KnowYourself_LR
